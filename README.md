@@ -1,1 +1,1 @@
-The inter that I have done in Adroid.
+The intern that I have done in Adroid.
